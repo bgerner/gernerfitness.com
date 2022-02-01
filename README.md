@@ -1,1 +1,0 @@
-# gernerfitness.com
